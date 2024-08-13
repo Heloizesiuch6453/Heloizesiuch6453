@@ -2,7 +2,7 @@
 - 👀 I’m interested in em macho 
 - 🌱 I’m currently learning nada 
 - 💞️ I’m looking to collaborate on com nada 
-- 📫 How to reach me não ache 
+- 📫 How to reach me não ache
 - 😄 Pronouns: boyceta 
 - ⚡ Fun fact: sou stripper 
 
